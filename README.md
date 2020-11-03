@@ -1,3 +1,3 @@
 # I-hate-QWERTY-want-better!
 
-,,,vfrgygx.vjrmz,aydZk]hChRA<Q:HOC
+,,,vfrgygx.vjrmz,ayjdZk]hChRA<Q:HOC
